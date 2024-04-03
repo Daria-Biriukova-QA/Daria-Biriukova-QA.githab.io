@@ -1,1 +1,1 @@
-# Daria-Biriukova-QA.oko.githab.io
+# Daria-Biriukova-QA.githab.io
